@@ -1,1 +1,1 @@
-# smoodh
+https://mhdashique.github.io/smoodh/
